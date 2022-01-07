@@ -25,7 +25,8 @@
 ---
 - 카페 호세
 	- 풍경이 보이는 통영 카페
-	- https://blog.naver.com/kimmk3699/222606573633![enter image description here](https://mblogthumb-phinf.pstatic.net/MjAyMTA2MTdfMjU5/MDAxNjIzODk1NzkwNTMw.q401E6uo8fZIHsvcpdqdO3hHYcFtSMLFYV3WVGlijAAg.jSE1zgxPEpSD07wfnHNKSLjMyoLxvYl08ONo-H_ndh8g.JPEG.mimi2752/IMG_7077.JPG?type=w800)
+	- https://blog.naver.com/kimmk3699/222606573633
+![enter image description here](https://mblogthumb-phinf.pstatic.net/MjAyMTA2MTdfMjU5/MDAxNjIzODk1NzkwNTMw.q401E6uo8fZIHsvcpdqdO3hHYcFtSMLFYV3WVGlijAAg.jSE1zgxPEpSD07wfnHNKSLjMyoLxvYl08ONo-H_ndh8g.JPEG.mimi2752/IMG_7077.JPG?type=w800)
 
 ---
 - 중앙시장
